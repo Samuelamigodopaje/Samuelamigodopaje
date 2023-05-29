@@ -9,3 +9,6 @@ Meu nome é Samuel
 ### Voce entra em contato comigo  📫
 
 @samuel.rubin@escola.pr.gov.br 
+
+
+![](https://media.tenor.com/dbl5xfyDPWQAAAAC/mario-kart.gif)
